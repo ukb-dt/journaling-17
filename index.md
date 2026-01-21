@@ -148,7 +148,7 @@ That takes years. It’s earned.
 
 ---
 
-### 5. Why It’s Okay to “Abide” This
+### [5](https://ukb-dt.github.io/the-dude-n-rug/). Why It’s Okay to “Abide” This
 
 The temptation is to resolve this into a slogan.
 Don’t.
